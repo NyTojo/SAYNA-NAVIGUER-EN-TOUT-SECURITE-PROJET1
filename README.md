@@ -1,1 +1,1 @@
-# SAYNA-Naviguer-en-toute-s-curit-
+# SAYNA-Naviguer-en-toute-sécurité
